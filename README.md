@@ -9,3 +9,7 @@ Upload to your profile and mention me (or what you like :))
 
 ![Personal Portfolio website](https://github.com/SK-Chaurasiya/Challenge_Portfolio_WebUI/assets/97239651/1a14e4d1-1bdd-4e47-b37f-0d4473c082ed)
 
+
+I do not own this copyRights.
+My friend is owning and he lives in Vietman
+
